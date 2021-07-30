@@ -1,1 +1,1 @@
-## Hi I'm Taylor 👋🏼
+## Hi! I'm Taylor 👋🏼
